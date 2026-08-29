@@ -3,7 +3,7 @@
 ## Members
 
 1. Ludwig D. Polecios
-2.
+2. Chris Laurence C. Cagoco
 3.
 4.
 5.
